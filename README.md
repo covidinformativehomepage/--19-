@@ -1,2 +1,2 @@
 # COVID-19 Informative Homepage.html
-made by Seohyun High School Students
+#2-D(20727) 이채은.zip.zip
